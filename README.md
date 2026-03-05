@@ -1,7 +1,7 @@
 Dear user,
 Your faith in us is appreciated & we commit to robust security and support for your cyber protection.
 
-𝘼𝙘𝙘𝙤𝙪𝙣𝙩 𝘿𝙚𝙩𝙖𝙞𝙡𝙨 :
+𝘼𝙘𝙘𝙤𝙪𝙣𝙩 𝘿𝙚𝙩𝙖𝙞𝙡𝙨 : 
 
 𝙋𝙧𝙤𝙙𝙪𝙘𝙩: 360 Protection Plan
 𝙎𝙩𝙖𝙧𝙩 𝘿𝙖𝙩𝙚: March 05, 2026
